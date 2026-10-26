@@ -21,6 +21,7 @@
 - 📫 How to reach me **infoxkingyt@gmail.com**
 
 - ⚡ Fun fact **I Love Gaming**
+- ⚡  **CSE**
 
 
 <b> <h4 align="center"> Join our discord to connect with our commmunity</h4> </b>
